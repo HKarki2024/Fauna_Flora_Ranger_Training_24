@@ -1,6 +1,8 @@
 # Fauna & Flora Ranger Training: Human Rights in Conservation
 Online access to Fauna &amp; Flora's ranger training materials on human rights in conservation. 
 
+<img width="1390" alt="1721998484" src="https://github.com/user-attachments/assets/5fd2c876-8f9c-46b8-bd17-5df5c171fcb0">
+
 Fauna & Flora is proud to announce the launch of an introductory ranger training module titled Ranger Training: Human Rights in Conservation, designed to equip rangers with essential skills and knowledge to protect human rights while fulfilling their conservation duties. This innovative module, developed and piloted with the Centre Forestier N’Zérékoré and Mukutan rangers, reflects a global commitment to fostering respect, equity, and dignity within protected and conserved areas.
 Often based in remote locations and working in areas relied upon by wildlife and people rangers can find themselves in difficult situations where both their own rights and those of local communities are at risk. However, by implementing Standard Operating Procedures, fostering committed management, and offering effective human rights training, we can empower rangers to adopt a stronger, rights-based approach to their work, ensuring it aligns with international standards.
 
