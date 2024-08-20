@@ -16,6 +16,7 @@ Key components of the training include:
 •	Presentation slides.
 •	Templates for exercises, handouts, and an optional assessment.
 •	Exercises which focus on recommendations and next steps.
+
 This month, rangers from Guinea’s Centre Forestier N’Zerekore will showcase this training at the World Ranger Congress. Join them at the Human Rights World Café Workshop, co-hosted by Fauna & Flora and WCS, on October 9th from 14:30 to 16:00.
 
 The "Ranger Training: Human Rights in Conservation" module is available for download in English and French—don’t miss out!
